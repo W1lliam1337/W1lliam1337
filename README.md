@@ -1,1 +1,1 @@
-https://en1gma.tech/
+https://t.me/animstate
